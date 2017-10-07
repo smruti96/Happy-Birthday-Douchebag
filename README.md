@@ -2,7 +2,7 @@
  Yaaaayyy!! So it's that time of the year :* Omprakash Sridharan! You are one amazing soul and there is nobody quite like you <3
  Yeah I used to be a bomb back in school and we barely spoke :P But it all kick-started with that friend request you sent me back in December 2014 :)
  P.S. This thing here could have had smileys but you didn't help me with that and this is gonna be one long shit! So bear with me :)))
- Starting where I left off.. Yeah the friend request :) That's the one best thing you've ever done :* It never occured to me that I'd be frieds with this geeky guy from school, let alone best friends :p
+ Starting where I left off.. Yeah the friend request :) That's the one best thing you've ever done :* It never occured to me that I'd be friends with this geeky guy from school, let alone best friends :p
  So gradually we got closer and you began to be grateful and fell for all my love and support :) Well a part of it is true :P 
  What exactly happenend was that every conversation with you felt like a step closer to home. You remedy my heart in a conversation! Time and again, you remind me the power of a good conversation- which is why I never get bored with your bullshit and am always eager to talk to you <3
  You are someone I lost myself to but never feel defeated about it! So it's kind of a win-win situation XD
